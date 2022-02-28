@@ -1,3 +1,5 @@
 ## Kitty Services
 
-Development is still in progress, come back soon please!
+Come back soon!
+
+Meanwhile check this out: https://https://playbeatthat.acura.com/
