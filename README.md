@@ -1,2 +1,1 @@
-# kittyservices.github.io
-Find out urself bud
+Development is still in progress!
