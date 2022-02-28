@@ -1,1 +1,1 @@
-Development is still in progress!
+Come back soon!
